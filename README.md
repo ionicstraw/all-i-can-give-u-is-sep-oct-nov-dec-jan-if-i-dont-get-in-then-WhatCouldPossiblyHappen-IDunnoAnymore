@@ -13,6 +13,8 @@
 
 i got my hair done yesterday and i think my hair dresser made my highlights slightly more golden than the cooler blonde from before, i dunno its ok its fine, im not doing too much today but there could be pictures over the weekend and then my brother comes back from italy over the weekend as well
 
+i have things to do now, tomorrow i will fix up my CV its been awhile
+
 ------------------
 # Oct
 ------------------
