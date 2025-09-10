@@ -1,5 +1,29 @@
 # all-i-can-give-u-is-sep-oct-nov-dec-jan-if-i-dont-get-in-then-WhatCouldPossiblyHappen-IDunnoAnymore
 
 ![img](sep-oct-nov-dec-2025-jan-2026.png)
+![img](ambitious-people.png)
+
+------------------
+# Sep
+------------------
 
 i got my hair done yesterday and i think my hair dresser made my highlights slightly more golden than the cooler blonde from before, i dunno its ok its fine, im not doing too much today but there could be pictures over the weekend and then my brother comes back from italy over the weekend as well
+
+------------------
+# Oct
+------------------
+
+
+------------------
+# Nov
+------------------
+* Finish app by this time, get letters of recs in etc.
+* Finish Rosalind code and R/Py packages by this time to discuss in the SOP
+
+------------------
+# Dec
+------------------
+
+------------------
+# Jan
+------------------
