@@ -3,10 +3,9 @@
 ![img](sep-oct-nov-dec-2025-jan-2026.png)
 ![img](ambitious-people.png)
 ![img](must-move-fwd.png)
-* note to myself, focus like i had to for calc 2 for engineers, forget everything that happened and everything that could go wrong again and __just do the problems__ and __understand everything possible__
-
+# note to myself, focus like i had to for calc 2 for engineers, forget everything that happened and everything that could go wrong again and __just do the problems__ and __understand everything possible__
 ![img](also-this.png)
-
+![img](another-year-i-guess.png)
 
 ------------------
 # Sep
