@@ -18,6 +18,8 @@ i have things to do now, tomorrow i will fix up my CV its been awhile
 - [ ] i gotta update my blog to the new version of Ghost, sometime this week
 - [ ] sign up for the NYT crossword, i use to enjoy that
 
+i guess i could have said more, i could have said way more lol ahahaha
+
 ------------------
 # Oct
 ------------------
