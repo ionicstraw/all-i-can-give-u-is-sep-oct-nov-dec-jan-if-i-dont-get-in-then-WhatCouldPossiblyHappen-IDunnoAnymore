@@ -15,6 +15,9 @@ i got my hair done yesterday and i think my hair dresser made my highlights slig
 
 i have things to do now, tomorrow i will fix up my CV its been awhile
 
+- [ ] i gotta update my blog to the new version of Ghost, sometime this week
+- [ ] sign up for the NYT crossword, i use to enjoy that
+
 ------------------
 # Oct
 ------------------
