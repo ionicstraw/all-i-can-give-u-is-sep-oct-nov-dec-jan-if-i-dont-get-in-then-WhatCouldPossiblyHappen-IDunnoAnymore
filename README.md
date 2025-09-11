@@ -20,6 +20,12 @@ i have things to do now, tomorrow i will fix up my CV its been awhile
 
 i guess i could have said more, i could have said way more lol ahahaha
 
+as someone who use to be obsessed with european history in hs and a little at rutgers, https://en.wikipedia.org/wiki/Pillory this needs to come back, we need to do this again
+
+i dont think the ottomans did this tho, i think shaming others publically wasnt a good thing, i dunno, but like, something like that should exist
+
+but like, we're dealing with someone who may get off on the humiliation so i dunno, thats why i kept the voicenote short bc he replay it over and over again and get off on it hahahahahaha so sad peoples lives ahhhhhhh
+
 ------------------
 # Oct
 ------------------
