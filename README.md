@@ -26,7 +26,7 @@ i dont think the ottomans did this tho, i think shaming others publically wasnt 
 
 but like, we're dealing with someone who may get off on the humiliation so i dunno, thats why i kept the voicenote short bc he replay it over and over again and get off on it hahahahahaha so sad peoples lives ahhhhhhh
 
-- [ ] ok so this is the brush i need according to tiktok to do the eyeliner better, i think the brush i was using was thicker https://www.maccosmetics.com/product/13804/823/products/brushes-tools/brushes/eye-brushes/263-synthetic-small-angle-brush im gonna get it tomorrow morning, oh man the mac store is in that american dream mall in north jersey im pretty sure, i just dont want to go to the mall tomorrow its sunday prolly will just order it, going to sleep
+- [ ] ok so this is the brush i need according to tiktok to do the eyeliner better, i think the brush i was using was thicker https://www.maccosmetics.com/product/13804/823/products/brushes-tools/brushes/eye-brushes/263-synthetic-small-angle-brush im gonna get it tomorrow morning, oh man the mac store is in that american dream mall in north jersey im pretty sure, i just dont want to go to the mall tomorrow its sunday prolly will just order it, ok i may get two of these brushes bc one of the comments said they use it as a lip liner, going to sleep
 
 ------------------
 # Oct
