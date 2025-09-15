@@ -32,6 +32,8 @@ my brothers back from italy with his wife but theyre in nyc with his wife and he
 
 my SIL made brownies and theyre so delicious, im gonna eat them all hahaha im not going to but i want to, shes really good at baking. my brother and his wife are moving out from maryland to NJ (like jersey city/hoboken) and he was saying that their apartment was giving them a hard time to extend their lease and they went to the office and my brother's like, yeah my wife is an attorney, so they backed down, started apologizing hahaha i remember my apt in philly, in 2017, i asked them to give me an extra day to pack and they said it was okay and not a problem, then the next month, the charged me an extra month's rent! and i was like wtf, it was $1150, fking grifters, and then i made a deal with people above them to charge me half that, thats so lame apt buildings do that.
 
+so fyi im going to be working with my bro in his company that does data sci on medicare data in DC next, but i told him, give me until jan 2026, if nothing works out, lets do that, and im going to learn more python/rust for the next few months
+
 ------------------
 # Oct
 ------------------
