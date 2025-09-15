@@ -34,6 +34,8 @@ my SIL made brownies and theyre so delicious, im gonna eat them all hahaha im no
 
 so fyi im going to be working with my bro in his company that does data sci on medicare data in DC next, but i told him, give me until jan 2026, if nothing works out, lets do that, and im going to learn more python/rust for the next few months
 
+got people over today so a little busy
+
 ------------------
 # Oct
 ------------------
