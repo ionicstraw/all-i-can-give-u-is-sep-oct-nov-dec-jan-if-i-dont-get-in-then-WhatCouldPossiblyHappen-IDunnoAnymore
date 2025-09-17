@@ -36,6 +36,8 @@ so fyi im going to be working with my bro in his company that does data sci on m
 
 got people over today so a little busy
 
+sun-less day ughhhh
+
 ------------------
 # Oct
 ------------------
