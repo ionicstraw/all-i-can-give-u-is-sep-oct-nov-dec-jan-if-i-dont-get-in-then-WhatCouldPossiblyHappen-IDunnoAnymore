@@ -38,6 +38,8 @@ got people over today so a little busy
 
 sun-less day ughhhh
 
+the plan is to get some sushi today so we are doing thatt
+
 ------------------
 # Oct
 ------------------
