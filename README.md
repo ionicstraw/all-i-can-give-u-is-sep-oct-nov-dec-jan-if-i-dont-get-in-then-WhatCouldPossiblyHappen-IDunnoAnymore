@@ -42,6 +42,8 @@ the plan is to get some sushi today so we are doing thatt
 
 picking up some bagels for my mom a little later from a bagel store lol im not a bagel person but she mentioned the other day that she wanted one so im like ok ill get some this week, i havent had a bagel in like over a year so im going to have a small piece haha like the highlight of my week, trying a bagel after more than a year, i like smoked salmon with cream cheese and capers 😬 i dunno thats like my thing
 
+- [ ] gotta get this for my brother before the end of the month when i see him again https://shop.bmwusa.com/products/detail.xx80165B4DBD7-1.html so he can wear it in his beemer, his umd cap got a little worn out in the sun in italy, so he needs another one
+
 ------------------
 # Oct
 ------------------
