@@ -44,6 +44,8 @@ picking up some bagels for my mom a little later from a bagel store lol im not a
 
 - [ ] gotta get this for my brother before the end of the month when i see him again https://shop.bmwusa.com/products/detail.xx80165B4DBD7-1.html so he can wear it in his beemer, his umd cap got a little worn out in the sun in italy, so he needs another one
 
+next book im reading this week: https://www.goodreads.com/book/show/39846642-the-science-of-rapid-skill-acquisition
+
 ------------------
 # Oct
 ------------------
