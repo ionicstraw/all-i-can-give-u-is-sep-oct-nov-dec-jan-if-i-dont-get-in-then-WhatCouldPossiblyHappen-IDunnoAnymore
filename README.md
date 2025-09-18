@@ -40,6 +40,8 @@ sun-less day ughhhh
 
 the plan is to get some sushi today so we are doing thatt
 
+picking up some bagels for my mom a little later from a bagel store lol im not a bagel person but she mentioned the other day that she wanted one so im like ok ill get some this week, i havent had a bagel in like over a year so im going to have a small piece haha like the highlight of my week, trying a bagel after more than a year, i like smoked salmon with cream cheese and capers 😬 i dunno thats like my thing
+
 ------------------
 # Oct
 ------------------
