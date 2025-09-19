@@ -51,6 +51,8 @@ once in awhile, maybe once every couple of months, my parents do a dinner where 
 
 deciding if i want to do my errand today or tomorrow morning which would take an hr T_T
 
+logging back in later today to github, got some things to do, pics this weekend, dunno sat or sun
+
 ------------------
 # Oct
 ------------------
