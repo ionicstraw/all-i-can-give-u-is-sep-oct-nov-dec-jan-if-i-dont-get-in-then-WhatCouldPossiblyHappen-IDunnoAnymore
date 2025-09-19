@@ -1,5 +1,6 @@
 # all-i-can-give-u-is-sep-oct-nov-dec-jan-if-i-dont-get-in-then-WhatCouldPossiblyHappen-IDunnoAnymore
 
+![img](in-summary.png)
 ![img](sep-oct-nov-dec-2025-jan-2026.png)
 ![img](ambitious-people.png)
 ![img](must-move-fwd.png)
