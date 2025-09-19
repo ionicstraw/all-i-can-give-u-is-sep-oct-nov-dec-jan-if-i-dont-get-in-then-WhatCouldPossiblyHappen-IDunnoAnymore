@@ -48,6 +48,7 @@ next book im reading this week: https://www.goodreads.com/book/show/39846642-the
 
 once in awhile, maybe once every couple of months, my parents do a dinner where we get fried chicken from a special place, and then pizza from a special place, and its just the best, so today is that day, its really about the journey of acquiring the goods from the places and then the self pat on the back for nailing the right combo 😂
 
+deciding if i want to do my errand today or tomorrow morning which would take an hr T_T
 
 ------------------
 # Oct
