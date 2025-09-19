@@ -53,6 +53,8 @@ deciding if i want to do my errand today or tomorrow morning which would take an
 
 logging back in later today to github, got some things to do, pics this weekend, dunno sat or sun
 
+ok logging off now lol, like i said theres a lot to discuss hence like 25+ pages of writing on ms word and its single spaced
+
 ------------------
 # Oct
 ------------------
