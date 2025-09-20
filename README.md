@@ -55,6 +55,8 @@ logging back in later today to github, got some things to do, pics this weekend,
 
 ok logging off now lol, like i said theres a lot to discuss hence like 25+ pages of writing on ms word and its single spaced
 
+- [ ] i gotta wear that italia sweatshirt later and send a pic to my brother so next time he sees that asian person on the umd campus who also wore an italia shirt, he can pull out my picture and say i pulled it off better than him (literally dumbest inside joke we have going on but my SIL is in on it too lol) hope i remember to do this later
+
 ------------------
 # Oct
 ------------------
