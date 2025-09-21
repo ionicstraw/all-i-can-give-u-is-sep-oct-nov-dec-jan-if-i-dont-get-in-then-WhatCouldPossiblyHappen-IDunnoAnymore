@@ -59,6 +59,8 @@ ok logging off now lol, like i said theres a lot to discuss hence like 25+ pages
 
 watching a movie in theatres with my dad l8r today
 
+ehhh this movie is too long i want it to end lol
+
 ------------------
 # Oct
 ------------------
