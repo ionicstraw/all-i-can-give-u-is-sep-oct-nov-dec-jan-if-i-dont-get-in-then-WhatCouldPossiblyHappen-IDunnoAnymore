@@ -61,6 +61,9 @@ watching a movie in theatres with my dad l8r today
 
 ehhh this movie is too long i want it to end lol
 
+me and my dad on the drive home were like, that was such a violent movie there was so much senseless violence in it, and i was like, they would never play a movie like that in the middle east or turkey, its just crazy. i was like u saw the trailers for the other horror movies, its crazy ppl find this stuff to be entertainment its insanity
+
+
 ------------------
 # Oct
 ------------------
