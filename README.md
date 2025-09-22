@@ -63,6 +63,8 @@ ehhh this movie is too long i want it to end lol
 
 me and my dad on the drive home were like, that was such a violent movie there was so much senseless violence in it, and i was like, they would never play a movie like that in the middle east or turkey, its just crazy. i was like u saw the trailers for the other horror movies, its crazy ppl find this stuff to be entertainment its insanity
 
+i watch the sopranos, i dunno thats a little a diff bc its about NJ culture ... NJ/NYC culture, the writing is great, its funny, theres violence and then they have their meetings at the strip club which always just makes me laugh lol, but i couldnt watch breaking bad, i know its prolly a good story line but its just too violent for me
+
 
 ------------------
 # Oct
