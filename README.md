@@ -67,6 +67,8 @@ i watch the sopranos, i dunno thats a little a diff bc its about NJ culture ... 
 
 i have to go to sleep early bc i have to take my mom to the doc tomorrow but i have to call them early in the morning to make the appt, everything is fine
 
+they closed this important road in my town and the detour is just awful 🥹
+
 ------------------
 # Oct
 ------------------
