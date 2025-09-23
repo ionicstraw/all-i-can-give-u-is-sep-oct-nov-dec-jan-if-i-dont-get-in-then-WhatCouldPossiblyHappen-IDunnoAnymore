@@ -65,6 +65,7 @@ me and my dad on the drive home were like, that was such a violent movie there w
 
 i watch the sopranos, i dunno thats a little a diff bc its about NJ culture ... NJ/NYC culture, the writing is great, its funny, theres violence and then they have their meetings at the strip club which always just makes me laugh lol, but i couldnt watch breaking bad, i know its prolly a good story line but its just too violent for me
 
+i have to go to sleep early bc i have to take my mom to the doc tomorrow but i have to call them early in the morning to make the appt, everything is fine
 
 ------------------
 # Oct
