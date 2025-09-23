@@ -69,6 +69,9 @@ i have to go to sleep early bc i have to take my mom to the doc tomorrow but i h
 
 they closed this important road in my town and the detour is just awful 🥹
 
+listening to my absolute hoe music in this docs office waiting room while theres some cartoon on the tv 😂
+
+
 ------------------
 # Oct
 ------------------
