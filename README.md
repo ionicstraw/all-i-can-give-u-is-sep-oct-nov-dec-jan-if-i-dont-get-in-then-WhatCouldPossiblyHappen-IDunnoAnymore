@@ -83,6 +83,8 @@ my experience with like indian men as managers has been great, they're super nic
 
 there was this chinese man postdoc in debashish's lab, and he would ask me to like check his english sometimes, he wasnt a nice person, i dunno, he was just whatever, but this one time, he asked me something no one in the lab asked me ever or could ask me, and i still remember it. he asked me "is your dad white" and im like what the actual fuck, like im here every single day, i have ubuntu on my monitor, im writing R code, its obvious, im fking working on research, i write my algorithm on the whiteboard next to him and this is the only thing he could ever think of to ask me. weird and bizarre. how does something like that get in to someones mind at WORK.
 
+in all of the phd programs ive applied over the years, ive NEVER written an immigrant chinese man as a PI of interest, it just wouldnt work out for me, ever. why would i want to torture myself based on the previous experiences ive had. they hate me for existing, im competition to them, its almost always been a negative exp for me.
+
 
 ------------------
 # Oct
