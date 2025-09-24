@@ -77,7 +77,7 @@ in my previous couple of jobs, im absolutely QUIET about my personal life, ill l
 
 ive seen ppls faces CHANGE once i mention that i worked at penn, obv i didnt have a good time there but its still an accomplishment OF MINE, in interviews, at previous positions, ppl dont like hearing that and seeing me say it, it makes them feel small. if i was a man, there wouldnt be a problem, but bc im a woman, those faces change bc they're like, "how did u do that, ure not suppose to get more ahead of me" things like that. well look at my fking cv before i was at penn, i worked in THREE different computational research labs at rutgers which isnt an easy school to get into, so how i got ahead was that i worked hard for it, and i did it all by myself, everything.
 
-
+chinese men, in my field, are the most competitive with me, ive known that since rutgers with my experience, just the absolute worst, just very competitive, they look for my flaws. i read a book a few yrs ago that talked about how in china, womens feet were bounded for like a century, thats been their view of women https://en.wikipedia.org/wiki/Foot_binding -- i do avoid them, i think good places to work are very picky with people like that, they can be nice ... sure, but with me, ive almost always had a negative experience, they just dont like me, i make them feel small and they get obsessed with me (this is based on multiple interactions ive had). im telling you, they just dont like me, like hate me could even be a more appropriate word.
 
 ------------------
 # Oct
