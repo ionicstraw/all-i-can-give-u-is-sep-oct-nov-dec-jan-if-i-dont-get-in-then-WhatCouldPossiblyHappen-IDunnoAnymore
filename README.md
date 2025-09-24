@@ -73,6 +73,7 @@ listening to my absolute hoe music in this docs office waiting room while theres
 
 i got into tiktok last yr, like early spring 2024, when they announced that it was going to get banned and i was like, what is this site that the us govt dares to ban, i want to form my own opinion about what it is. so i made an account and i made my age to something in my 40s and my gender was female. the first few videos i got were of women in their 40s talking about how to be smarter at work ... how to play the corporate game, like dont make friends with ppl at work bc u dunno who they are, that kind of stuff, but really good stuff, and i read, i read books and the newspaper, and i listen to podcasts, and ive had a reddit account since rutgers -- never have i ever heard of advice like that, opinions like that, i was just amazed. ive learned so much from so many ppl, esp women, its a good site. i wanted to pay it forward and make an official account, def next year
 
+in my previous couple of jobs, im absolutely QUIET about my personal life, ill listen to other ppls conversations, but im just quiet about my own ... "ohh your brother has a phd in cs" "ohh you have your own car" like noo thats not information my coworkers need to know about me, esp as a woman, it inspires atleast jealousy, not from everyone, but u never know who someone is. things have happend to me. i have learned to be like this. for me, work is just labor in exchange for pay, thats it.
 
 ------------------
 # Oct
