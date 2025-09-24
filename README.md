@@ -75,6 +75,9 @@ i got into tiktok last yr, like early spring 2024, when they announced that it w
 
 in my previous couple of jobs, im absolutely QUIET about my personal life, ill listen to other ppls conversations, but im just quiet about my own ... "ohh your brother has a phd in cs" "ohh you have your own car" like noo thats not information my coworkers need to know about me, esp as a woman, it inspires atleast jealousy, not from everyone, but u never know who someone is. things have happend to me. i have learned to be like this. for me, work is just labor in exchange for pay, thats it.
 
+ive seen ppls faces CHANGE once i mention that i worked at penn, obv i didnt have a good time there but its still an accomplishment OF MINE, in interviews, at previous positions, ppl dont like hearing that and seeing me say it, it makes them feel small. if i was a man, there wouldnt be a problem, but bc im a woman, those faces change bc they're like, "how did u do that, ure not suppose to get more ahead of me" things like that.
+
+
 ------------------
 # Oct
 ------------------
