@@ -71,6 +71,8 @@ they closed this important road in my town and the detour is just awful 🥹
 
 listening to my absolute hoe music in this docs office waiting room while theres some cartoon on the tv 😂
 
+i got into tiktok last yr, like early spring 2024, when they announced that it was going to get banned and i was like, what is this site that the us govt dares to ban, i want to form my own opinion about what it is. so i made an account and i made my age to something in my 40s and my gender was female. the first few videos i got were of women in their 40s talking about how to be smarter at work ... how to play the corporate game, like dont make friends with ppl at work bc u dunno who they are, that kind of stuff, but really good stuff, and i read, i read books and the newspaper, and i listen to podcasts, and ive had a reddit account since rutgers -- never have i ever heard of advice like that, opinions like that, i was just amazed. ive learned so much from so many ppl, esp women, its a good site. i wanted to pay it forward and make an official account, def next year
+
 
 ------------------
 # Oct
