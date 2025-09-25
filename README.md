@@ -95,6 +95,11 @@ i like living with my parents, theyre safe people for me, i can talk to them abo
 
 so yesterday, i took my mom to the foot doctor, bc a couple of weeks ago she lost consciousness getting out of bed (shes healthy alhamdulillah, it has to do with something else), and she fell and we found out yesterday that theres a fracture in her foot so she has to wear a leg brace for 2 months, and its not a big deal, its not something horrible, the worst is that she cant drive and ill just have to drive her wherever which is fine, but i was so sad yesterday T_T its just a foot brace, not a big deal, but i was sad, bc over the weekend she was like "im going to drive you to freehold" and im like lol "ok sure kinda random but we can go" so now its like, i dunno, theres nothing i can do, i feel so helpless ... it hurts a little seeing her foot brace prolly, thats prolly what made me sad T_T i dunno
 
+my brother and my SIL are moving from maryland to hoboken this weekend, so my brother is going to all of his favorite food places in maryland this week and eating his last maryland meal, so my moms happy we can all go to dinner together on the weekends and things like that since he will be closer
+
+i was telling my mom the other day, theres this thing my brother does that is starting to boil my blood lol, ill say something to him in imessage, and he'll respond with the explaination mark emoji on it, i was like why the fk does he do that, im a good writer, im good at explaining things, whats the fking issue, like why does he not get what im saying, and my mom was like, hes prolly confused, but im like WTF WHY THO, im gonna tell him in person dont use that fking emoji ever again >:( just be like "oh i dont understand" >:( where does he learn to do things like that, maybe slack or something
+
+
 ------------------
 # Oct
 ------------------
