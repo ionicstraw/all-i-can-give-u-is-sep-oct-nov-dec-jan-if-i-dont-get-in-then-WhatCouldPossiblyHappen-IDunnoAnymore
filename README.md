@@ -85,6 +85,15 @@ there was this chinese man postdoc in debashish's lab, and he would ask me to li
 
 in all of the phd programs ive applied over the years, ive NEVER written an immigrant chinese man as a PI of interest, it just wouldnt work out for me, ever. why would i want to torture myself based on the previous experiences ive had. they hate me for existing, im competition to them, its almost always been a negative exp for me.
 
+in my opinion, it really truly is a miracle that ive been writing to you all these years or coming back to this whole thing, i dunno why i do it, i get it thing is all crazy, but i dont have to be in it, but i also dont want anyone else
+
+all the writing is going to be useful, legally, ive submitted some project ideas over the years and talking about them led to n o m i a l and me becoming a better writer of the yrs, but it still sucks bc i miss you, but then its like ok theres some downtime and im responsible enough to plan out my downtimes in the past and make use of them
+
+i think its important to reframe things in a positive way, just in life ... that came up in a nonfiction book i was reading and u know a person can spend their whole life, picking out the negative become bitter or ... or a person can pick out the positives and focus on the wins.
+
+i like living with my parents, theyre safe people for me, i can talk to them about almost anything, i just want to make them proud of me so much, thats my number 1 goal
+
+so yesterday, i took my mom to the foot doctor, bc a couple of weeks ago she lost consciousness getting out of bed (shes healthy alhamdulillah, it has to do with something else), and she fell and we found out yesterday that theres a fracture in her foot so she has to wear a leg brace for 2 months, and its not a big deal, its not something horrible, the worst is that she cant drive and ill just have to drive her wherever which is fine, but i was so sad yesterday T_T its just a foot brace, not a big deal, but i was sad, bc over the weekend she was like "im going to drive you to freehold" and im like lol "ok sure kinda random but we can go" so now its like, i dunno, theres nothing i can do, i feel so helpless ... it hurts a little seeing her foot brace prolly, thats prolly what made me sad T_T i dunno
 
 ------------------
 # Oct
