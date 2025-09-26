@@ -99,6 +99,10 @@ my brother and my SIL are moving from maryland to hoboken this weekend, so my br
 
 i was telling my mom the other day, theres this thing my brother does that is starting to boil my blood lol, ill say something to him in imessage, and he'll respond with the explaination mark emoji on it, i was like why the fk does he do that, im a good writer, im good at explaining things, whats the fking issue, like why does he not get what im saying, and my mom was like, hes prolly confused, but im like WTF WHY THO, im gonna tell him in person dont use that fking emoji ever again >:( just be like "oh i dont understand" >:( where does he learn to do things like that, maybe slack or something
 
+still the todo for 9/25
+- [ ] fix cv
+- [ ] email three PIs
+thats it, then im done for the day.
 
 ------------------
 # Oct
