@@ -101,8 +101,10 @@ i was telling my mom the other day, theres this thing my brother does that is st
 
 still the todo for 9/25
 - [x] fix cv
-- [ ] email three PIs -- alright here goes
+- [x] email five PIs -- alright here goes
 thats it, then im done for the day.
+
+ok emailed u too bc i dunno maybe u will respond. some sopranos then sleep.
 
 ------------------
 # Oct
