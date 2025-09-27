@@ -112,6 +112,8 @@ i dunno what im doing today, my brother and my SIL are moving from maryland to t
 
 https://www.tiktok.com/@persianpoetics/video/7554428648946814238 cool 😎
 
+found this yt channel of interesting talks to go over in october https://www.youtube.com/@machinelearningforhealthca6988/videos
+
 ------------------
 # Oct
 ------------------
