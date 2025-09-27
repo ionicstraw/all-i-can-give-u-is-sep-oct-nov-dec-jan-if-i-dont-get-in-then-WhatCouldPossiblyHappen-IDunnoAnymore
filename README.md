@@ -110,6 +110,8 @@ the code i wrote for mysis, the rna viewer, is somewhere in a hard drive in the 
 
 i dunno what im doing today, my brother and my SIL are moving from maryland to their condo in nj today but i dunno what im doing today
 
+https://www.tiktok.com/@persianpoetics/video/7554428648946814238 cool 😎
+
 ------------------
 # Oct
 ------------------
