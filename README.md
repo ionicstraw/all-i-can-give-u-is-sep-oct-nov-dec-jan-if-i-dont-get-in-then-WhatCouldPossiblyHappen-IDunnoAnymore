@@ -114,6 +114,8 @@ https://www.tiktok.com/@persianpoetics/video/7554428648946814238 cool 😎
 
 found this yt channel of interesting talks to go over in october https://www.youtube.com/@machinelearningforhealthca6988/videos
 
+i have a really good idea of something id like to do with n o m i a l, predicting the risk of an AI/ML algorithm implemented by a hospital -- who is doing that? i dunno, will write about it in my SOP
+
 ------------------
 # Oct
 ------------------
