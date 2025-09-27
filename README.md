@@ -108,6 +108,8 @@ ok emailed u too bc i dunno maybe u will respond. some sopranos then sleep.
 
 the code i wrote for mysis, the rna viewer, is somewhere in a hard drive in the garage, but ryan golhar talked about it in the LOR, i did write it, it just wasnt incorporated in the end bc we were running out of time to finish things. it does exist, i did write it. 
 
+i dunno what im doing today, my brother and my SIL are moving from maryland to their condo in nj today but i dunno what im doing today
+
 ------------------
 # Oct
 ------------------
