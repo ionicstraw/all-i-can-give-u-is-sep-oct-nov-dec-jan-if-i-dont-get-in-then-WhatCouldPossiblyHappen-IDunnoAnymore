@@ -116,6 +116,8 @@ found this yt channel of interesting talks to go over in october https://www.you
 
 i have a really good idea of something id like to do with n o m i a l, predicting the risk of an AI/ML algorithm implemented by a hospital -- who is doing that? i dunno, will write about it in my SOP
 
+im going to clean up these repos later in the day, the plan is to be a complete nerd oct/nov
+
 ------------------
 # Oct
 ------------------
