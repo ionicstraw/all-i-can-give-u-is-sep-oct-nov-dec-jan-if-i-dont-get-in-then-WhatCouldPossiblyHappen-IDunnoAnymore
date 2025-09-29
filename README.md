@@ -118,6 +118,10 @@ i have a really good idea of something id like to do with n o m i a l, predictin
 
 im going to clean up these repos later in the day, the plan is to be a complete nerd oct/nov
 
+my rust goals from last yr, i didnt reach them but sometimes, it just takes another yr, looking at something with more experience and now its like, thats what i want to do for the next couple of months
+
+i have to sign up for the nyt crossword puzzle again, something to do every morning https://www.nytimes.com/crosswords
+
 ------------------
 # Oct
 ------------------
