@@ -123,6 +123,8 @@ my rust goals from last yr, i didnt reach them but sometimes, it just takes anot
 
 i have to sign up for the nyt crossword puzzle again, something to do every morning https://www.nytimes.com/crosswords
 
+a little busy today 😬
+
 ------------------
 # Oct
 ------------------
