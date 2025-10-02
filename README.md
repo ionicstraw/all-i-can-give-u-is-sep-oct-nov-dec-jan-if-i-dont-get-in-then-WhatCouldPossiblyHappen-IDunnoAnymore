@@ -135,6 +135,8 @@ i know that anytime ive had downtime, i do use it for good and force myself to l
 
 theres that de bruijn graph problem that comes up later in rosalind, wouldnt it be great if i can solve that and talk about it in my personal statement and ask claude all these questions and truly understand it, ask it to give me feedback on my code, pull up papers on graph assembly etc etc ... thats a good goal for october/november ... so python + write a de bruijn graph -> paragraph in my personal statement
 
+i wanted to make a blog post on herlog explaining cosine similarity with some toy dataset, that will take me sometime but i want to add that to my cv of articles ive written ahhhhh etc etc
+
 ------------------
 # Oct
 ------------------
