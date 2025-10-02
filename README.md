@@ -129,6 +129,8 @@ i think the absolute worst belief ive had in my entire life, given it wasnt up t
 
 my mom in the car yesterday was saying, as i was driving, that when i was a newborn and so was my brother (we're twins) my aunt would come over (this is in pakistan) and bathe my brother and my mom's mom's friend who was a schoolteacher, would come over and bathe me and teach my mom how to do it. and i was saying to my mom, there's just a lot of selfish and mean people now, like that kind of stuff, is rare now. she was saying that that woman passed away a long time ago and my mom still prays for her, things like that.
 
+i just want to take a break for like all of september, gotta figure out where i left off with rosalind and those problems, now i can ask questions on claude if i want to. i dont think its capable of coming up with the code completely and correctly and i dont like asking for answers when i know its something i need to know in the future. anyway thats what im doing this month. 
+
 ------------------
 # Oct
 ------------------
