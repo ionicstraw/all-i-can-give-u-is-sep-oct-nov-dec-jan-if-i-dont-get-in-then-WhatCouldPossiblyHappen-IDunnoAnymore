@@ -125,6 +125,10 @@ i have to sign up for the nyt crossword puzzle again, something to do every morn
 
 a little busy today 😬
 
+i think the absolute worst belief ive had in my entire life, given it wasnt up to me nor was it my idea ... it was fed from tv/entertainment ... anyway worst belief was that i thought life ends at 30 ... so everything needed to happen before then, fine it was good motivation, but then its like whatever happens after 30 wasnt meaningless tho. ppl work and start companies in their 50s 60s etc. another example, ppl memorize quran in their 50s 60s 70s and thats intense ... very intense concentration, so its not good to think like that, anything is possible, whenever. i just dont want to turn 40, i dunno what thats like.
+
+my mom in the car yesterday was saying, as i was driving, that when i was a newborn and so was my brother (we're twins) my aunt would come over (this is in pakistan) and bathe my brother and my mom's mom's friend who was a schoolteacher, would come over and bathe me and teach my mom how to do it. and i was saying to my mom, there's just a lot of selfish and mean people now, like that kind of stuff, is rare now. she was saying that that woman passed away a long time ago and my mom still prays for her, things like that.
+
 ------------------
 # Oct
 ------------------
