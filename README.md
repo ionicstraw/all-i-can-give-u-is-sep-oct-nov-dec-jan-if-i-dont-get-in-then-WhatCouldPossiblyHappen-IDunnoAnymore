@@ -133,6 +133,8 @@ i just want to take a break for like all of september, gotta figure out where i 
 
 i know that anytime ive had downtime, i do use it for good and force myself to learn new things, and it comes up in work later and then im like, well i didnt have to do anything in my downtime prolly but i forced myself and it paid off
 
+theres that de bruijn graph problem that comes up later in rosalind, wouldnt it be great if i can solve that and talk about it in my personal statement and ask claude all these questions and truly understand it, ask it to give me feedback on my code, pull up papers on graph assembly etc etc ... thats a good goal for october/november ... so python + write a de bruijn graph -> paragraph in my personal statement
+
 ------------------
 # Oct
 ------------------
