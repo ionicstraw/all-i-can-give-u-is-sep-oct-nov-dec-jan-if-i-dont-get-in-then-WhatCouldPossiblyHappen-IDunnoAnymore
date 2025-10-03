@@ -137,6 +137,9 @@ theres that de bruijn graph problem that comes up later in rosalind, wouldnt it 
 
 i wanted to make a blog post on herlog explaining cosine similarity with some toy dataset, that will take me sometime but i want to add that to my cv of articles ive written ahhhhh etc etc
 
+i had to step outside earlier, i was driving with my windows down with my heat on, heated seats & heated stearing wheel on with the cooler air coming in, which reminded me that in hs, my friends, we would do that in the hot summer, drive with the windows down and the ac on high lol, its just stupid, it makes no sense but its just very fun for no reason, ive done this ... well this past summer was super busy, but once in awhile i'll do it AND i'll eat a chipwich from wawa while driving lol 10/10 experience. u should hang out with me, im a fun person.
+
+
 ------------------
 # Oct
 ------------------
