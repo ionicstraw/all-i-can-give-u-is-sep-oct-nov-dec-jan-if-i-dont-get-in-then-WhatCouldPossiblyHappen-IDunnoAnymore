@@ -139,7 +139,7 @@ i wanted to make a blog post on herlog explaining cosine similarity with some to
 
 i had to step outside earlier, i was driving with my windows down with my heat on, heated seats & heated stearing wheel on with the cooler air coming in, which reminded me that in hs, my friends, we would do that in the hot summer, drive with the windows down and the ac on high lol, its just stupid, it makes no sense but its just very fun for no reason, ive done this ... well this past summer was super busy, but once in awhile i'll do it AND i'll eat a chipwich from wawa while driving lol 10/10 experience. u should hang out with me, im a fun person.
 
-u better enjoy that song bc ive been saving it, keeping it unshared, for yrs
+u better enjoy that song bc ive been saving it, keeping it unshared, for yrs, maybe i shared it i dunno forgot
 
 ------------------
 # Oct
