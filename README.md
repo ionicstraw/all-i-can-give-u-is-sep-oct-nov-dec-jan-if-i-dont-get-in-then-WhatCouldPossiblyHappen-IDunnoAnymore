@@ -141,6 +141,8 @@ i had to step outside earlier, i was driving with my windows down with my heat o
 
 u better enjoy that song bc ive been saving it, keeping it unshared, for yrs, maybe i shared it i dunno forgot
 
+"we're all going out to dinner after asr" well then it became "after maghreb" now we're all still home lol and dressed up and im hungry
+
 ------------------
 # Oct
 ------------------
