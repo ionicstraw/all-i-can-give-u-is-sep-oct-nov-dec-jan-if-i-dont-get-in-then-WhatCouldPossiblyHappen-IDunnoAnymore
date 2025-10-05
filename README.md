@@ -143,6 +143,8 @@ u better enjoy that song bc ive been saving it, keeping it unshared, for yrs, ma
 
 "we're all going out to dinner after asr" well then it became "after maghreb" now we're all still home lol and dressed up and im hungry
 
+i wanna watch the sopranos then sleep but its a little late, but its the weekend hmmm, had my kashmiri chai so im not sleepy soooo thats another vote for the sopranos lol
+
 ------------------
 # Oct
 ------------------
