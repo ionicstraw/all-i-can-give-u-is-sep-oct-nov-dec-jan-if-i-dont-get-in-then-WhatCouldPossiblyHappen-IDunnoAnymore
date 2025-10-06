@@ -145,6 +145,8 @@ u better enjoy that song bc ive been saving it, keeping it unshared, for yrs, ma
 
 i wanna watch the sopranos then sleep but its a little late, but its the weekend hmmm, had my kashmiri chai so im not sleepy soooo thats another vote for the sopranos lol
 
+i ate some olives now im gonna sleep 😬
+
 ------------------
 # Oct
 ------------------
