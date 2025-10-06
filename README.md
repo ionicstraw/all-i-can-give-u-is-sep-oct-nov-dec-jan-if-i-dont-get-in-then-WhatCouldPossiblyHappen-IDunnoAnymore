@@ -147,6 +147,8 @@ i wanna watch the sopranos then sleep but its a little late, but its the weekend
 
 i ate some olives now im gonna sleep 😬
 
+[lololl](https://drive.google.com/file/d/10Y4UImLYKO4Ftps05mW7CX9nmRE1NVbV/view?usp=share_link) i got it, i got my article after i sent my brother this voicenote
+
 ------------------
 # Oct
 ------------------
