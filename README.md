@@ -149,6 +149,8 @@ i ate some olives now im gonna sleep 😬
 
 [lololl](https://drive.google.com/file/d/10Y4UImLYKO4Ftps05mW7CX9nmRE1NVbV/view?usp=share_link) i got it, i got my article after i sent my brother this voicenote
 
+setting up the new iphone, i dunno too much about it i think it had a better camera or something
+
 ------------------
 # Oct
 ------------------
