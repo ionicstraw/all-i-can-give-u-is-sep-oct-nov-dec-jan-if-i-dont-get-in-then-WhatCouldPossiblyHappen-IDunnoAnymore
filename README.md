@@ -151,6 +151,9 @@ i ate some olives now im gonna sleep 😬
 
 setting up the new iphone, i dunno too much about it i think it had a better camera or something
 
+a few yrs ago, i kept the iphone i used to call u in 2018, i think it was 2020 when we got new phones, and i never returned that one, i was like, ohh i dunno i have too many memories on that iphone, i dont want to trade it in, and my dad was like whats going on?? its junk, and im like yeah i know, but i just dont want anyone else to have it. and then a couple yrs ago, i was thinking, man i cant believe i did that, its so dumb, its like obsolete junk like who cares why did i keep that iphone its just in my drawer not going anything, and now im like, i guess that was kind of interesting i did that. im an anti-hoarder, i throw things away easily and quickly, i dont really attach too much emotion to like objects, but THAT iphone, i just could not give it away. 
+
+
 ------------------
 # Oct
 ------------------
