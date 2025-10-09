@@ -1,5 +1,5 @@
 # all-i-can-give-u-is-sep-oct-nov-dec-jan-if-i-dont-get-in-then-WhatCouldPossiblyHappen-IDunnoAnymore
-
+![img](this-whole-thing-all-3-emotions-all-at-the-same-time.png)
 ![img](in-summary.png)
 ![img](sep-oct-nov-dec-2025-jan-2026.png)
 ![img](ambitious-people.png)
