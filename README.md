@@ -155,6 +155,9 @@ setting up the new iphone, i dunno too much about it i think it had a better cam
 
 i know the central theme to write my personal statement around now, it poped in my head yesterday, what im working on todayy
 
+
+ok so my personal statement "theme" is going to be about comp bio/data science pipelines ive written in the past uhhh decade and their uses in a clinical setting, and then future directions of writing AI/ML pipelines in cancer. so i gotta fit everything in under 1500 umm words/characters / 2 pages. i wanna finish by mid-november, and then ill make some more voicenotes after im done with my app. i have an important errand tomorrow morning that i have to dress up for. and then i def want to bake a cake this weekend but i just dont eat sweets that much anymore, i dunno, something **cake** related tho
+
 ------------------
 # Oct
 ------------------
