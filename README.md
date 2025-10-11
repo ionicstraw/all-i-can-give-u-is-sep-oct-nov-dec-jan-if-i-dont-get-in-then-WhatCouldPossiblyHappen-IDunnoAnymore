@@ -158,6 +158,8 @@ i know the central theme to write my personal statement around now, it poped in 
 
 ok so my personal statement "theme" is going to be about comp bio/data science pipelines ive written in the past uhhh decade and their uses in a clinical setting, and then future directions of writing AI/ML pipelines in cancer. so i gotta fit everything in under 1500 umm words/characters / 2 pages. i wanna finish by mid-november, and then ill make some more voicenotes after im done with my app. i have an important errand tomorrow morning that i have to dress up for. and then i def want to bake a cake this weekend but i just dont eat sweets that much anymore, i dunno, something **cake** related tho
 
+a little busy today will tell u a story later as to what happened to me this morning
+
 ------------------
 # Oct
 ------------------
