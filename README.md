@@ -162,6 +162,7 @@ a little busy today will tell u a story later as to what happened to me this mor
 
 this morning was my realid appt at the dmv, which i made in june 2025!! this was the closest date they had available. so anyway, i got up early, showered, dressed up, did my makeup, and i had all of my documents in a ziplock bag, i got there early, i put on my N95 mask in the car bc its saturday and i was like it's prolly packed inside, but it was empty so i took it off ... anyway long story short, a letter to my house from my health insurance company **rolls eyes** isnt a "valid" proof of address, so i have to come back, and print out a bank statement bc my bank is paperless!!  >:(  my dad was surprised too, like wth. 1 out of 10 star experience at the nj dmv, was to be expected. i gotta do it all over again sometime this week ugh
 
+im really sensitive to like flu shots, i dunno im just under the weather yesterday/today i dunno if its that or something else. was suppose to go grocery shopping with my mom today but theres some storm so we're doing that tomorrow. 
 
 ------------------
 # Oct
