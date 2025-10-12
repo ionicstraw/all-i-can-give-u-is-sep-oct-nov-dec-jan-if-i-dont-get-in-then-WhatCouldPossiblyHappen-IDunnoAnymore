@@ -166,6 +166,7 @@ im really sensitive to like flu shots, i dunno im just under the weather yesterd
 
 i have funny stories about that jacket lol, ive had it since lockdown, even my dry cleaner offered to charge me for a discount bc they thought it was for kids, its a size small ... my dad was like "please dont wear that to work" when i was at sampled, and i was like fk that, i should get judged for the code i write, not my jacket
 
+i was telling my dad yesterday that i should take my license pic in that jacket lol, and my dad was like -_- all i want in life is a job where i can be a programmer and be able to wear that jacket to WORK and not be judged bc its so comfortable.
 
 ------------------
 # Oct
