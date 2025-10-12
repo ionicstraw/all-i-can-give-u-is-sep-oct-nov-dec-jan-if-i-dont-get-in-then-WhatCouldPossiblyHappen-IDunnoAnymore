@@ -164,6 +164,9 @@ this morning was my realid appt at the dmv, which i made in june 2025!! this was
 
 im really sensitive to like flu shots, i dunno im just under the weather yesterday/today i dunno if its that or something else. was suppose to go grocery shopping with my mom today but theres some storm so we're doing that tomorrow. 
 
+i have funny stories about that jacket lol, ive had it since lockdown, even my dry cleaner offered to charge me for a discount bc they thought it was for kids, its a size small ... my dad was like "please dont wear that to work" when i was at sampled, and i was like fk that, i should get judged for the code i write, not my jacket
+
+
 ------------------
 # Oct
 ------------------
