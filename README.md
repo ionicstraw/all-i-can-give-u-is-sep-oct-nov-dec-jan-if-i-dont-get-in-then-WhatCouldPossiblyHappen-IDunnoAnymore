@@ -168,6 +168,9 @@ i have funny stories about that jacket lol, ive had it since lockdown, even my d
 
 i was telling my dad yesterday that i should take my license pic in that jacket lol, and my dad was like -_- all i want in life is a job where i can be a programmer and be able to wear that jacket to WORK and not be judged bc its so comfortable.
 
+that jacket was like $250 so of course im going to wear it whenever i want, AND THEN, its not even pink!! its a light pastel-y purple with NEON GREEN lol, i dunno i wear it when i go get coffee bc its so grey outside in the winter and i like wearing it, its fun haha i dunno maybe i'll retire it one day, maybe i wont
+
+
 ------------------
 # Oct
 ------------------
