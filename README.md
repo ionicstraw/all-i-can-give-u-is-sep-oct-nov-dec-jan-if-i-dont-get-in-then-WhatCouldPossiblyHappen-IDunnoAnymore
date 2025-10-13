@@ -174,6 +174,8 @@ i found the name of this jacket in my photos from 2020 and i googled it, https:/
 
 errands with my mom in this cold and rainy weather
 
+gotta wake up early tomorrow, going to sleep early
+
 ------------------
 # Oct
 ------------------
