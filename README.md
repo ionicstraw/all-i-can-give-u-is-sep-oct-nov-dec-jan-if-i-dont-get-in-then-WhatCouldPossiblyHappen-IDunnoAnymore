@@ -172,6 +172,8 @@ that jacket was like $250 so of course im going to wear it whenever i want, AND 
 
 i found the name of this jacket in my photos from 2020 and i googled it, https://www.renttherunway.com/shop/designers/for_love_and_lemons/sloane_faux_shearling_jacket see its a fun jacket u can see other ppl wearing it lol i would sleep in this jacket if i could -- its for adults
 
+errands with my mom in this cold and rainy weather
+
 ------------------
 # Oct
 ------------------
