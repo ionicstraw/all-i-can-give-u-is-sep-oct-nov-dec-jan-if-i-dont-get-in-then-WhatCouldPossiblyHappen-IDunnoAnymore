@@ -170,6 +170,7 @@ i was telling my dad yesterday that i should take my license pic in that jacket 
 
 that jacket was like $250 so of course im going to wear it whenever i want, AND THEN, its not even pink!! its a light pastel-y purple with NEON GREEN lol, i dunno i wear it when i go get coffee bc its so grey outside in the winter and i like wearing it, its fun haha i dunno maybe i'll retire it one day, maybe i wont
 
+i found the name of this jacket in my photos from 2020 and i googled it, https://www.renttherunway.com/shop/designers/for_love_and_lemons/sloane_faux_shearling_jacket see its a fun jacket u can see other ppl wearing it lol i would sleep in this jacket if i could -- its for adults
 
 ------------------
 # Oct
