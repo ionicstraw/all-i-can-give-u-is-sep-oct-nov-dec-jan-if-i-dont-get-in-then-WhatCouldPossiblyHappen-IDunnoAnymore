@@ -178,6 +178,8 @@ gotta wake up early tomorrow, going to sleep early
 
 😬 things to do today :)
 
+got my real id pic done/made, theyre gonna mail it to me in a month. gotta drive miss daisy to her dr's appt, then ill upload some pics later today
+
 ------------------
 # Oct
 ------------------
