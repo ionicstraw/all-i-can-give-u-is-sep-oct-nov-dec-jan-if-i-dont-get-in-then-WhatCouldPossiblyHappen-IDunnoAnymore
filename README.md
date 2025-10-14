@@ -176,6 +176,8 @@ errands with my mom in this cold and rainy weather
 
 gotta wake up early tomorrow, going to sleep early
 
+😬 things to do today :)
+
 ------------------
 # Oct
 ------------------
