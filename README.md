@@ -180,6 +180,8 @@ gotta wake up early tomorrow, going to sleep early
 
 got my real id pic done/made, theyre gonna mail it to me in a month. gotta drive miss daisy to her dr's appt, then ill upload some pics later today
 
+ohh i should explain myself, that gold jennifer behr headband i think was like $500?? maybe $600?? but not like $1000s, i have other ones too. im going to eat some olives then sleep
+
 ------------------
 # Oct
 ------------------
