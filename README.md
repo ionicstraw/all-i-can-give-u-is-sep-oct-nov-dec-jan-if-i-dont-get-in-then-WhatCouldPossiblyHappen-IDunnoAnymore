@@ -186,6 +186,7 @@ working on mt app todayy/tomorroww
 
 theres this girl on tiktok who is persian that said that like she gets her eyebrows done every 10 days, like she has to, and im like i think i do too, i never realized it but i obviously have the same issue ... once a month is too long, its a little out of my way if i go tomorrow. i go to this lady in the mall and she's SO GOOD, like absolutely like perfection, i think i will see her twice a month now. going to nyc for dinner with my parents this weekend, my bro and my SIL were saying earlier today that doughnut plant has some new pumpkin doughnut or whatever but in the grand central one but we dont go to that one, going to sleep no sopranos, busy day tomorrow
 
+i saw this earlier, thought about it alot, then i ended up getting it: https://www.jenniferbehr.com/products/printed-tori-headband-leopard-print imagine wearing all black, then just a little bit of leopard print as a headband ... that's the vision, just a little bit of leopard print, not too much, just a tiny amount
 
 ------------------
 # Oct
