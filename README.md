@@ -188,6 +188,8 @@ theres this girl on tiktok who is persian that said that like she gets her eyebr
 
 i saw this earlier, thought about it alot, then i ended up getting it: https://www.jenniferbehr.com/products/printed-tori-headband-leopard-print imagine wearing all black, then just a little bit of leopard print as a headband ... that's the vision, just a little bit of leopard print, not too much, just a tiny amount
 
+little busyy today, the plan is nyc, tomorrow some errands, monday-friday: app
+
 ------------------
 # Oct
 ------------------
