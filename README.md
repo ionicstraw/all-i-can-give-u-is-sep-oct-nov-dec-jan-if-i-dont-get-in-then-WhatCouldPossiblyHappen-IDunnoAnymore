@@ -190,6 +190,8 @@ i saw this earlier, thought about it alot, then i ended up getting it: https://w
 
 little busyy today, the plan is nyc, tomorrow some errands, monday-friday: app
 
+going to maybee watch some sopranos, like an episode, then sleep. got this inter-faith thing at a church tomorrow my dad is going to and wants me to go to so i have to dress up uhh nicely, the talks look like they will be good, i should prolly remember to bring a headscarf if they read namaz there, but watch me forget, i shouldnt forget to bring it, but i might. i swapped out of those leopard print leggings into something else bc theyre not really comfortable, which is too bad bc they cost as much as my lulu leggings, lame right?? not gonna return bc they're kind of fun tho
+
 ------------------
 # Oct
 ------------------
