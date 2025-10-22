@@ -197,6 +197,12 @@ https://www.tiktok.com/@niikolna/video/7563002765245582614 that has to be like 4
 
 i wanted to make some grapefruit juice in my vitamix like i use to in bethesda, so i got some grapefruit over the weekend ... its easy just gotta peel it and fill the container with some water, and i have some empty erehwon glass jars that i could put the juice in to ... but noo i got lazy and got some grapefruit juice as delivery. 🥹 working on my app today tomorrow. i dunno what happend to the s t r i p p e r repos i think it got deleted and i didnt do that, interesting
 
+i got this https://www.freepeople.com/shop/forever-romance-blouse/ it was on my wishlist for a yr, maybe ill wear it this weekend or next?? but if we're going out to dinner im not gonna wear it there bc i dont want it to get dirty
+
+this whole app thing prolly stresses me out bc last yr, my ear stopped working for a week when the notices were coming out in dec, i need to not have that happen again. my treat to myself when im done with my app is to go to the mac cosmetics store at the american dream mall and basically get whatever i want ... sooo end of november i will do this 😇
+
+ok im cleaning up the repos today, im just going to leave like 4-5 open for the next month, i need peace
+
 ------------------
 # Oct
 ------------------
