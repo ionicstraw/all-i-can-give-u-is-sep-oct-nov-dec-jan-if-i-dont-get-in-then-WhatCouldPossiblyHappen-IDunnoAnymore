@@ -195,6 +195,8 @@ going to maybee watch some sopranos, like an episode, then sleep. got this inter
 
 https://www.tiktok.com/@niikolna/video/7563002765245582614 that has to be like 4 syringes of lip filler. early next yr i wanted to do a little bit more, maybe a half more. i feel like its ok to look like this if u have a career and stuff, but if this is the only thing u have going on then thats not good.
 
+i wanted to make some grapefruit juice in my vitamix like i use to in bethesda, so i got some grapefruit over the weekend ... its easy just gotta peel it and fill the container with some water, and i have some empty erehwon glass jars that i could put the juice in to ... but noo i got lazy and got some grapefruit juice as delivery. 🥹 working on my app today tomorrow. i dunno what happend to the s t r i p p e r repos i think it got deleted and i didnt do that, interesting
+
 ------------------
 # Oct
 ------------------
