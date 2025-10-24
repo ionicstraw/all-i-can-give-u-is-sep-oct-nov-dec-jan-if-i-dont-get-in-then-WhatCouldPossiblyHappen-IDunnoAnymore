@@ -203,6 +203,8 @@ this whole app thing prolly stresses me out bc last yr, my ear stopped working f
 
 ok im cleaning up the repos today, im just going to leave like 4-5 open for the next month, i need peace
 
+when u have a dream thats good ure suppose to share it and i had a dream last night that we got married and u were in my room playing video games on my tv 😂 but i dont have video games on my tv so i dunno 😂 working on my app today, maybe ill go to whole foods to get sushi with my mom its just the rush hr traffic on friday starts at like 3 pm so we'll see
+
 ------------------
 # Oct
 ------------------
