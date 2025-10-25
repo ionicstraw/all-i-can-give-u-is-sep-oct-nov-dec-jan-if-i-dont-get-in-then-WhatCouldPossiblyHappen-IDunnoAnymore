@@ -207,6 +207,8 @@ when u have a dream thats good ure suppose to share it and i had a dream last ni
 
 im going to be in long island sun to mon with my parents, i dunno if i should bring my macbook or not, mini vacation
 
+i get really excited sometimes about everything, going to sleep, pics tomorrow ... yes ... little bit of errands tomorrow
+
 ------------------
 # Oct
 ------------------
