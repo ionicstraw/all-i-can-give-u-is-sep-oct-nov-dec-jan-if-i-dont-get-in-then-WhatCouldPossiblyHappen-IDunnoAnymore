@@ -215,6 +215,8 @@ im going to be away from my laptop for the next couple of days, will upload pics
 
 i got my r e a l i d in the mail yesterday and my pic looks good, coud be maybe a little better but still, my parents like it lol
 
+HEY read this in my dad's voice: there are some things u can ONLY say to me in private one day, write it all down, vim or the notes app, password protected encrypted, dont utter a single word to anyone, not a single soul.
+
 ------------------
 # Oct
 ------------------
