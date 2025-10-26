@@ -213,6 +213,8 @@ im going to be away from my laptop for the next couple of days, will upload pics
 
 - [ ] theres a charity that sent me physical mail, i have to donate to them later this week
 
+i got my r e a l i d in the mail yesterday and my pic looks good, coud be maybe a little better but still, my parents like it lol
+
 ------------------
 # Oct
 ------------------
