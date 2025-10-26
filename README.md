@@ -209,6 +209,10 @@ im going to be in long island sun to mon with my parents, i dunno if i should br
 
 i get really excited sometimes about everything, going to sleep, pics tomorrow ... yes ... little bit of errands tomorrow
 
+im going to be away from my laptop for the next couple of days, will upload pics tuesday, going with my parents, i dont think we are going to visit my uncle's house who passed away from covid, yr 1 of covid, its still too difficult for my mom, bringing my ipad so i can watch some sopranos or eternal sunshine of the spotless mind bc that takes place in long island haha ok "meet me in montauk" u know what ive seen that movie a few of times, but i had to watch in senior yr in hs and maybe ive watched it a couple of times after that (i watched it before watching it in class tho), i just remember the teacher pausing the movie and being like "do u guys get why her hair color is different" things like that it got soo annoying
+
+- [ ] theres a charity that sent me physical mail, i have to donate to them later this week
+
 ------------------
 # Oct
 ------------------
