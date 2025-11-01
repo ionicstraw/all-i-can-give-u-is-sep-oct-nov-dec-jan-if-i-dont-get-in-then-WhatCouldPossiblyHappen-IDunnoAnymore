@@ -219,6 +219,8 @@ HEY read this in my dad's voice: there are some things u can ONLY say to me in p
 
 working on my app monday to friday, just thinking of things to write
 
+i want to bake a cake this weekend or cup cakes or something
+
 ------------------
 # Oct
 ------------------
