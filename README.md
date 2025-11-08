@@ -222,6 +222,8 @@ working on my app monday to friday, just thinking of things to write
 
 i want to bake a cake this weekend or cup cakes or something
 
+im working on my app, im not doing anything other than that until its done, no pics this weekend, im serious theres a lot i have to read and watch b4 i can write about it on my personal statement
+
 ------------------
 # Oct
 ------------------
