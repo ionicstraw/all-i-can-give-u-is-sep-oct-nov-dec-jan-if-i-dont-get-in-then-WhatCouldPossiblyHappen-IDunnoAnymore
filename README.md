@@ -224,6 +224,8 @@ i want to bake a cake this weekend or cup cakes or something
 
 im working on my app, im not doing anything other than that until its done, no pics this weekend, im serious theres a lot i have to read and watch b4 i can write about it on my personal statement
 
+we found out today that my mom's foot fracture is actually healing so she wont need surgery, alhamdulillah thats good, she was making me laugh out loud in the car today haha
+
 ------------------
 # Oct
 ------------------
