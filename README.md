@@ -228,6 +228,8 @@ we found out today that my mom's foot fracture is actually healing so she wont n
 
 im good im just thinking and writing, today, all weekend, all next week 😬
 
+i would take a rainy-cloudy-cold day over a sunny-but-windy-dry day in the fall/winter any day, need to pull out my humidifier
+
 ------------------
 # Oct
 ------------------
