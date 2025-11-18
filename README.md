@@ -230,6 +230,8 @@ im good im just thinking and writing, today, all weekend, all next week 😬
 
 i would take a rainy-cloudy-cold day over a sunny-but-windy-dry day in the fall/winter any day, need to pull out my humidifier
 
+9dcwnIgBrCk they did a good job with this! its punjabi so i dont really understand it, i need subtitles. going to nyc for dinner with my parents later?? thats the plan. my personal statement is entirely focused on cancer + AI, just a small mention of space like half a sentence. ill explain it after im done with it hopefully by next monday/tues.
+
 ------------------
 # Oct
 ------------------
