@@ -232,6 +232,8 @@ i would take a rainy-cloudy-cold day over a sunny-but-windy-dry day in the fall/
 
 9dcwnIgBrCk they did a good job with this! its punjabi so i dont really understand it, i need subtitles. going to nyc for dinner with my parents later?? thats the plan. my personal statement is entirely focused on cancer + AI, just a small mention of space like half a sentence. ill explain it after im done with it hopefully by next monday/tues. u know why im trying not to get distracted and being like super focused on this, bc i know the kind of AI stuff m s k needed, i know from so many meetings. i know so much 😬 i'll do it if i can use their data or whatever data is available. my mom doesnt like the weather, not going to nyc for dinner lol another day
 
+refering to it as n o m i a l  l a b s in my personal statement :) why only just AI, but im not saying that just yet
+
 ------------------
 # Oct
 ------------------
