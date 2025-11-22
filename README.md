@@ -234,6 +234,8 @@ i would take a rainy-cloudy-cold day over a sunny-but-windy-dry day in the fall/
 
 refering to it as n o m i a l  l a b s in my personal statement :) why only just AI, but im not saying that just yet
 
+can u find a cool font to write n o m i a l  l a b s  in the page, whatever font u choose will be the logo/font but i guess i can choose a temp font after my app is done
+
 ------------------
 # Oct
 ------------------
