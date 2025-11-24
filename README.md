@@ -236,6 +236,10 @@ refering to it as n o m i a l  l a b s in my personal statement :) why only just
 
 can u find a cool font to write n o m i a l  l a b s  in the page, whatever font u choose will be the logo/font but i guess i can choose a temp font after my app is done
 
+ill make u some voice notes in december, thought of some things, but jokes too rotfl. its so fun to write a good joke, its like doing a math problem, it's gotta stick in so many ways, the landing has to stick lol
+
+i may finish this app tomorrow morning, i have to take a break now ill come back later in a coupe of hrs
+
 ------------------
 # Oct
 ------------------
