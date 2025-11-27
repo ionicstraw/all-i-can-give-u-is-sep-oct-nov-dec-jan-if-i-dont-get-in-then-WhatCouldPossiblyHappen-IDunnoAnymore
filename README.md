@@ -240,6 +240,8 @@ ill make u some voice notes in december, thought of some things, but jokes too r
 
 i may finish this app tomorrow morning, i have to take a break now ill come back later in a coupe of hrs
 
+my bro left for san diego for NeurIPS this morning, so we did thanksgiving yesterday bc he & his wife wouldnt be here today, so today, me and my parents are doing something else, i dunno what lol
+
 ------------------
 # Oct
 ------------------
