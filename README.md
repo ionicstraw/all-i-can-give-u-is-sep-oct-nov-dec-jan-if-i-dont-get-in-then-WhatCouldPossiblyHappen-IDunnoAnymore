@@ -244,6 +244,8 @@ my bro left for san diego for NeurIPS this morning, so we did thanksgiving yeste
 
 my brother was asking me what to do in los angeles bc hes going there after neurips, next week with his wife and i was like LOL go to erehwon hahahaha i dunno thats the only thing prolly that city has over nyc, idc about los angeles hahahaha u know tho, i think bike riding in huntington beach is nicer than the boardwalk in nj tho, i will say that
 
+having a chill day, watching a movie or sopranos (bc i didnt watch it all month) later
+
 ------------------
 # Oct
 ------------------
