@@ -242,6 +242,8 @@ i may finish this app tomorrow morning, i have to take a break now ill come back
 
 my bro left for san diego for NeurIPS this morning, so we did thanksgiving yesterday bc he & his wife wouldnt be here today, so today, me and my parents are doing something else, i dunno what lol
 
+my brother was asking me what to do in los angeles bc hes going there after neurips, next week with his wife and i was like LOL go to erehwon hahahaha i dunno thats the only thing prolly that city has over los angeles, idc about los angeles hahahaha
+
 ------------------
 # Oct
 ------------------
