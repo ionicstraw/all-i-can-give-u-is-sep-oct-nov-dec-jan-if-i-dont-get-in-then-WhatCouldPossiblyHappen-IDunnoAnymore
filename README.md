@@ -246,6 +246,8 @@ my brother was asking me what to do in los angeles bc hes going there after neur
 
 having a chill day, watching a movie or sopranos (bc i didnt watch it all month) later
 
+some errands today that i couldnt do for the past two days bc of the holiday/traffic. i dunno what my parents want to do, actually wanted to go to the short hills mall tho so maybe. have to order some books on amazon that i want to read, a couple of AI oreilly books just to get an overview. tomorrow maybe ill do something
+
 ------------------
 # Oct
 ------------------
