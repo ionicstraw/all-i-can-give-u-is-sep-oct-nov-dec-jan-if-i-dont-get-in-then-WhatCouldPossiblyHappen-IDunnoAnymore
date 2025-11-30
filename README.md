@@ -248,6 +248,9 @@ having a chill day, watching a movie or sopranos (bc i didnt watch it all month)
 
 some errands today that i couldnt do for the past two days bc of the holiday/traffic. i dunno what my parents want to do, actually wanted to go to the short hills mall tho so maybe. have to order some books on amazon that i want to read, a couple of AI oreilly books just to get an overview. tomorrow maybe ill do something
 
+my dad's very old friend, who got his phd in india in math then got another phd in the us (i forgot where), when became a professor then retired, was my (and my brother's) SAT tutor then i would ask him questions when i was doing stuff in biochemistry, like stuff with equations and stuff, like how to solve them faster. so anyway, hes just a very polite person, his son did engineering at rutgers and he's prolly a few yrs younger than me, and when he was in hs, every time i would see him @ the masjid, i would be like "you have to take a.p. comp sci" like i did, bc its taught way better in hs than at rutgers, so he took it and it changed his life and career now hes been in industry. anyway, so the retired professor/my dad's friend, when i was at penn, once at eid namaz he said "if u get in to the phd program at penn, i would tell everyone that i knew u" lol and i never said to him that id apply there, but he was figuring out my life for me a little lol ... but anyway, my dad saw him earlier today, and he said that i was always a wiser person than my brother lol, and hes retired now, but hes writing a book on a mughal ruler in urdu now hahaha
+
+
 ------------------
 # Oct
 ------------------
