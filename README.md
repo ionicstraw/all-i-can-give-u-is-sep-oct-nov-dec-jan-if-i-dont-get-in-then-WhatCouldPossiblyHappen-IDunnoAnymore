@@ -252,7 +252,12 @@ my dad's very old friend, who got his phd in india in math then got another phd 
 
 > "if u get in to the phd program at penn, i would tell everyone that i knew u"
 
-u know the first thought that came in to my mind when he said that in 2015, was "i can do better than that program" bc the plan, that i never told anyone lol, since igem was MIT's phd program. and i interviewed with cigall kadoch's lab @ the broad, in 2014 before penn, so i was like, yeah it could be possible. anyway, she didnt choose me but i thought if im generally getting an interview in labs like that for a bioinformatician position, i could then get an interview with their phd program. if i had more papers, tho, better recs back in 2018/2019 maybe who knows. but anyway u should, i knew how good i was when i was @ penn, i wasnt like desperate and like "omg im so happy they hired me" i was like, i could do better than this place but for now ill just chill, they're taking 2 hr lunches and i guess thats fine its whatever
+
+u know the first thought that came in to my mind when he said that in 2015, was "i can do better than that program" bc the plan, that i never told anyone lol, since igem was MIT's phd program. and i interviewed with cigall kadoch's lab @ the broad, in 2014 before penn, so i was like, yeah it could be possible. anyway, she didnt choose me but i thought if im generally getting an interview in labs like that for a bioinformatician position, i could then get an interview with their phd program. if i had more papers, tho, better recs back in 2018/2019 maybe who knows. but anyway u should, i knew how good i was when i was @ penn, i wasnt like desperate and like "omg im so happy they hired me" i was like, i could do better than this place but for now ill just chill, they're taking 2 hr lunches and i guess thats fine its whatever ... i was like, this is not the broad, its not genentech, its not nyc, its whatever, im not dying to be here everyday, im not desperate however, its better than nothing
+
+i got a couple of books, wont be delivered by tomorrow but, thats what im up to all week. apparently its going to snow on tuesday ... might do something fun today
+
+
 ------------------
 # Oct
 ------------------
