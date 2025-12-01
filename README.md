@@ -259,6 +259,8 @@ i got a couple of books, wont be delivered by tomorrow but, thats what im up to 
 
 that guy was like, "do you want me to move my easel" and i was like "ohh its ok", but i really wanted him to move it lol that place gets packed later in the day oh well
 
+ill wear my mushroom sweater one day, i use to know the lifecycle lol, use to have it memorized
+
 ------------------
 # Oct
 ------------------
