@@ -261,6 +261,8 @@ that guy was like, "do you want me to move my easel" and i was like "ohh its ok"
 
 ill wear my mushroom sweater one day, i use to know the lifecycle lol, use to have it memorized
 
+i dont want to unarchive that repos, i was a good kid, i didnt do that, but i still kind of did it. everybody does it.
+
 ------------------
 # Oct
 ------------------
