@@ -267,6 +267,8 @@ i made a voicenote directed at jason like i said i would, 9 mins long, lemme upl
 
 hang on my laptop is being weird
 
+hehehe back to reading my books
+
 ------------------
 # Oct
 ------------------
