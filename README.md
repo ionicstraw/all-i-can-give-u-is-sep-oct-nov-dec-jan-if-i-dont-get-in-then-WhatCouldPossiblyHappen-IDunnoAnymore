@@ -263,6 +263,8 @@ ill wear my mushroom sweater one day, i use to know the lifecycle lol, use to ha
 
 i dont want to unarchive that repos, i was a good kid, i didnt do that, but i still kind of did it. everybody does it.
 
+i made a voicenote directed at jason like i said i would, 9 mins long, lemme upload it
+
 ------------------
 # Oct
 ------------------
