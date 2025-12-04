@@ -265,6 +265,8 @@ i dont want to unarchive that repos, i was a good kid, i didnt do that, but i st
 
 i made a voicenote directed at jason like i said i would, 9 mins long, lemme upload it
 
+hang on my laptop is being weird
+
 ------------------
 # Oct
 ------------------
