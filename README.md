@@ -275,6 +275,7 @@ i got some pictures from today but im a little busy gonna upload in a bit
 
 those are s t r i p p e r heels supposedly ... "supposedly" in quotes lol theyre pretty comfortable tho, i enjoy wearing them, i can drive with them too 
 
+my brother is back from NeurIPS/los angeles, he bought back some doughnuts and stuff, going to hang out with him today bc his wife is coming back tomorrow
 ------------------
 # Oct
 ------------------
