@@ -271,6 +271,8 @@ hehehe back to reading my books
 
 i thought of that first joke a month ago, and i was laughing out loud to myself in my car lol, i was like, if i thnk its funny then u'll like it haha but i was like i gotta finish the personal statement first
 
+i got some pictures from today but im a little busy gonna upload in a bit
+
 ------------------
 # Oct
 ------------------
