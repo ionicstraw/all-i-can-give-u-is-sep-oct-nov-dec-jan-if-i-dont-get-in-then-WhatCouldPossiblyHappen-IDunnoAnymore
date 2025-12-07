@@ -273,6 +273,8 @@ i thought of that first joke a month ago, and i was laughing out loud to myself 
 
 i got some pictures from today but im a little busy gonna upload in a bit
 
+those are s t r i p p e r heels supposedly ... "supposedly" in quotes lol theyre pretty comfortable tho, i enjoy wearing them, i can drive with them too 
+
 ------------------
 # Oct
 ------------------
