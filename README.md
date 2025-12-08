@@ -276,6 +276,9 @@ i got some pictures from today but im a little busy gonna upload in a bit
 those are s t r i p p e r heels supposedly ... "supposedly" in quotes lol theyre pretty comfortable tho, i enjoy wearing them, i can drive with them too 
 
 my brother is back from NeurIPS/los angeles, he bought back some doughnuts and stuff, going to hang out with him today bc his wife is coming back tomorrow
+
+i was having a conversation with my brother yesterday and he was saying, he wishes he had more fun during his phd, like, work from another city for a week, bc the same amount of work would be produced but he would have fun being in another city for a week things like that. its important to have fun. i was like yeah, i spent the whole summer working and time passed by so quickly
+
 ------------------
 # Oct
 ------------------
