@@ -279,6 +279,8 @@ my brother is back from NeurIPS/los angeles, he bought back some doughnuts and s
 
 i was having a conversation with my brother yesterday and he was saying, he wishes he had more fun during his phd, like, work from another city for a week, bc the same amount of work would be produced but he would have fun being in another city for a week things like that. its important to have fun. i was like yeah, i spent the whole summer working and time passed by so quickly
 
+i felt like under the weather today but now i feel better, going to wake up early tomorrow
+
 ------------------
 # Oct
 ------------------
