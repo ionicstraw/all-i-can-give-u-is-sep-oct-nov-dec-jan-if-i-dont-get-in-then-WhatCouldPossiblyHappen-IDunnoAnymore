@@ -281,7 +281,7 @@ i was having a conversation with my brother yesterday and he was saying, he wish
 
 i felt like under the weather today but now i feel better, going to wake up early tomorrow
 
-the thing that makes me laugh out loud that i said in the previous voice note was when i said "i know you dont have that chair" lmaoooo i know he doesnt, he can be dept chair all he wants but that b*tch doesnt have a $2000 herman miller chair. i have more stories that will make u laugh and wonder wtf that whole thing was and where i was bc that was not a serious place, but for legal and strategic reasons i dont want to share them
+the thing that makes me laugh out loud that i said in the previous voice note was when i said "i know you dont have that chair" lmaoooo i know he doesnt, he can be dept chair all he wants but that b*tch doesnt have a $2000 herman miller chair. i have more stories that will make u laugh and wonder wtf that whole thing was and where i was bc that was not a serious place, but for legal and strategic reasons i dont want to share them. the strategy is to reveal that he's a weak person afterall and just the biggest loser ever, and all of that is true bc he is a weak person and a loser.
 
 ------------------
 # Oct
