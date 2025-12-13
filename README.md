@@ -287,6 +287,8 @@ theres a conference talk from last yr i want to share with u but not in public u
 
 is it really gonna snow on sundayy, gotta go to my dealership next week so they can put in the cover for my hubcap that fell off and i had to pay for a new one. i was telling my parents im going to wear like 2 layers of socks, pants and multiple fleece jackets bc its so cold in there, maybe even fingerless gloves i dunno and i'll have to wait for HOURS but i can get some reading done. when i shared my plan with my mom she asked, "how many layers of underwear are u gonna wear" lololl
 
+i got some pictures for u but we're going out to dinner soon i dunno where
+
 ------------------
 # Oct
 ------------------
