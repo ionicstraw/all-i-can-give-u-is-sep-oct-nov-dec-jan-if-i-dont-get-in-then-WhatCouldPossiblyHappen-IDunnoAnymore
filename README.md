@@ -291,6 +291,8 @@ i got some pictures for u but we're going out to dinner soon i dunno where
 
 reading some things today, just want a lot of coffee 🥹
 
+i feel like not doing my readings today, i feel like just going to get coffee a few towns over, something like that, i feel like staring out the window and i also feel like bothering u lol
+
 ------------------
 # Oct
 ------------------
