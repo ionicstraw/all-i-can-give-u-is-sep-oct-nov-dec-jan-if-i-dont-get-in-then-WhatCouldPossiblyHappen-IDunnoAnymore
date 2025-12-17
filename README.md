@@ -293,6 +293,8 @@ reading some things today, just want a lot of coffee 🥹
 
 i feel like not doing my readings today, i feel like just going to get coffee a few towns over, something like that, i feel like staring out the window and i also feel like bothering u lol
 
+i really like studying with chatgpt, its like anything is possible, well not really really advanced stuff, but for reviewing and things, its really interesting
+
 ------------------
 # Oct
 ------------------
