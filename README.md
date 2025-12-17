@@ -1,5 +1,5 @@
-# [all-i-can-give-u-is-sep-oct-nov-dec-jan-if-i-dont-get-in-then-WhatCouldPossiblyHappen-IDunnoAnymore](framed-tweet.png)
-![img](framed-tweet.png)
+# [all-i-can-give-u-is-sep-oct-nov-dec-jan-if-i-dont-get-in-then-WhatCouldPossiblyHappen-IDunnoAnymore](framed-tweet-updated.png)
+![img](framed-tweet-updated.png)
 ![img](this-whole-thing-all-3-emotions-all-at-the-same-time.png)
 ![img](i-have-to-finish-my-app.png)
 ![img](in-summary.png)
