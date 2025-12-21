@@ -299,6 +299,8 @@ the place i/we get kashmiri tea from is closing down :( today was the last day. 
 
 https://drive.google.com/file/d/1xa9vznNRBi5VAolnICKcRBggEEmbGrlk/view?usp=share_link i dunno what i meant by this lol, from this morning/afternoon 😂
 
+my dad wants to watch the spongebob movie in theaters lol im like ok sure why not 😂
+
 ------------------
 # Oct
 ------------------
