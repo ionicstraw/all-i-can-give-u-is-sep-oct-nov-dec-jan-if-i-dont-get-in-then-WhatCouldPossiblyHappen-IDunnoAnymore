@@ -295,6 +295,8 @@ i feel like not doing my readings today, i feel like just going to get coffee a 
 
 i really like studying with chatgpt, its like anything is possible, well not really really advanced stuff, but for reviewing and things, its really interesting
 
+the place i/we get kashmiri tea from is closing down :( today was the last day. gotta find another place i guess
+
 ------------------
 # Oct
 ------------------
