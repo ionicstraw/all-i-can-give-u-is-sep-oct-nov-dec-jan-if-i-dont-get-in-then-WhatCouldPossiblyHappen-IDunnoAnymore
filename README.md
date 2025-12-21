@@ -297,6 +297,8 @@ i really like studying with chatgpt, its like anything is possible, well not rea
 
 the place i/we get kashmiri tea from is closing down :( today was the last day. gotta find another place i guess
 
+https://drive.google.com/file/d/1xa9vznNRBi5VAolnICKcRBggEEmbGrlk/view?usp=share_link i dunno what i meant by this lol, from this morning/afternoon 😂
+
 ------------------
 # Oct
 ------------------
