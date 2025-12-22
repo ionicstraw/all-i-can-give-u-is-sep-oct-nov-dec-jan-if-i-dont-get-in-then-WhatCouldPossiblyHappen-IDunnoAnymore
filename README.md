@@ -303,6 +303,8 @@ my dad wants to watch the spongebob movie in theaters lol im like ok sure why no
 
 u know its one thing to read what im saying or to hear it via a voicenote but seeing me say it in person or even a video, i know im a force to be reckoned with
 
+i took some pictures today, was a little busy
+
 ------------------
 # Oct
 ------------------
