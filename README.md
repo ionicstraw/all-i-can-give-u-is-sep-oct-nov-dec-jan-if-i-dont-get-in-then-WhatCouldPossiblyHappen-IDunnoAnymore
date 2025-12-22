@@ -301,6 +301,8 @@ https://drive.google.com/file/d/1xa9vznNRBi5VAolnICKcRBggEEmbGrlk/view?usp=share
 
 my dad wants to watch the spongebob movie in theaters lol im like ok sure why not 😂
 
+u know its one thing to read what im saying or to hear it via a voicenote but seeing me say it in person or even a video, i know im a force to be reckoned with
+
 ------------------
 # Oct
 ------------------
