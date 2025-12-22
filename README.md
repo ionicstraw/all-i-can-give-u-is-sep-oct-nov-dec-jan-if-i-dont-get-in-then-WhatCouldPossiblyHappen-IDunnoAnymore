@@ -305,6 +305,8 @@ u know its one thing to read what im saying or to hear it via a voicenote but se
 
 i took some pictures today, was a little busy
 
+today and tomorrow i gotta take my mom to her foot appts, lots of waiting so ill bring a book with me to read
+
 ------------------
 # Oct
 ------------------
