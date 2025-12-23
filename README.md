@@ -307,6 +307,8 @@ i took some pictures today, was a little busy
 
 today and tomorrow i gotta take my mom to her foot appts, lots of waiting so ill bring a book with me to read
 
+back to back appts i have to take my mom to today, and the traffic outside is awful but i got my book
+
 ------------------
 # Oct
 ------------------
