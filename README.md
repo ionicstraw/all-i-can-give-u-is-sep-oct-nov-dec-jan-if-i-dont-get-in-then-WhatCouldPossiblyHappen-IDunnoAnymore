@@ -309,6 +309,8 @@ today and tomorrow i gotta take my mom to her foot appts, lots of waiting so ill
 
 back to back appts i have to take my mom to today, and the traffic outside is awful but i got my book
 
+going to long island with my parents in a little bit bc we're all a little bored lol im going to get my orange chicken from that chinese restaurant in long island, im literally going to get extra to put in the freezer rotfl
+
 ------------------
 # Oct
 ------------------
