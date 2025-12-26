@@ -1,4 +1,5 @@
 # [all-i-can-give-u-is-sep-oct-nov-dec-jan-if-i-dont-get-in-then-WhatCouldPossiblyHappen-IDunnoAnymore](framed-tweet-updated.png)
+![img](every-day-in-2026.png)
 ![img](framed-tweet-updated.png)
 ![img](this-whole-thing-all-3-emotions-all-at-the-same-time.png)
 ![img](i-have-to-finish-my-app.png)
