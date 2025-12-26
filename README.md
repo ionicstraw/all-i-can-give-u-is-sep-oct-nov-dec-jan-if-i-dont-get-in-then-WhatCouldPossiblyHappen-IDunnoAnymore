@@ -311,6 +311,8 @@ back to back appts i have to take my mom to today, and the traffic outside is aw
 
 going to long island with my parents in a little bit bc we're all a little bored lol im going to get my orange chicken from that chinese restaurant in long island, im literally going to get extra to put in the freezer rotfl
 
+my local vietnamese/thai restaurant, makes fresh beef bone broth and sells 32oz for $7, so i was going to get a couple of those for this long weekend. my goal is to become healther, they're halal and they have lamb skewers too, that's what im going to do, im going to get that beef bone broth and keep it in the fridge and drink it all weekend lol my plan is to go to city and an art museum next week
+
 ------------------
 # Oct
 ------------------
