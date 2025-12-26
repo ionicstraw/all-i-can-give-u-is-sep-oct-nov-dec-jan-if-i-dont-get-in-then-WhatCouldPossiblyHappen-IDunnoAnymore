@@ -313,6 +313,8 @@ going to long island with my parents in a little bit bc we're all a little bored
 
 my local vietnamese/thai restaurant, makes fresh beef bone broth and sells 32oz for $7, so i was going to get a couple of those for this long weekend. my goal is to become healther, they're halal and they have lamb skewers too, that's what im going to do, im going to get that beef bone broth and keep it in the fridge and drink it all weekend lol my plan is to go to city and an art museum next week
 
+next to that mall with the vietnamese/thai restaurant is the hmart mall, and that has a bakery that i want a slice of cake from but u know how it is, literally the worst drivers in the entire state congregate to that hmart parking lot, i dont have that kind of patience today
+
 ------------------
 # Oct
 ------------------
