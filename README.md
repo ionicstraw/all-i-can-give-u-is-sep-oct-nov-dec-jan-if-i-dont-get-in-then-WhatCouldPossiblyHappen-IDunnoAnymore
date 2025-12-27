@@ -316,6 +316,8 @@ my local vietnamese/thai restaurant, makes fresh beef bone broth and sells 32oz 
 
 next to that mall with the vietnamese/thai restaurant is the hmart mall, and that has a bakery that i want a slice of cake from but u know how it is, literally the worst drivers in the entire state congregate to that hmart parking lot, i dont have that kind of patience today
 
+got my printable museum pass from my library for one of the art museums in nyc for this week, which i havent been to in 10 yrs
+
 ------------------
 # Oct
 ------------------
