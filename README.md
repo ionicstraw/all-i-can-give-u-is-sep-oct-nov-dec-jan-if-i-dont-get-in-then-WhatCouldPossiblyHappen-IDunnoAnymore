@@ -318,6 +318,8 @@ next to that mall with the vietnamese/thai restaurant is the hmart mall, and tha
 
 got my printable museum pass from my library for one of the art museums in nyc for this week, which i havent been to in 10 yrs
 
+i was planning on going to the art museum in nyc tomorrow but i have a cold and i dont want to walk around with a stuffy nose, so ill go sometime in january/feb but def going to pilates this week
+
 ------------------
 # Oct
 ------------------
