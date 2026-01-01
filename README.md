@@ -320,6 +320,8 @@ got my printable museum pass from my library for one of the art museums in nyc f
 
 i was planning on going to the art museum in nyc tomorrow but i have a cold and i dont want to walk around with a stuffy nose, so ill go sometime in january/feb but def going to pilates this week
 
+i should write in my blog a lot this month, i got a lot of traffic today and it reminded me that ppl read it
+
 ------------------
 # Oct
 ------------------
