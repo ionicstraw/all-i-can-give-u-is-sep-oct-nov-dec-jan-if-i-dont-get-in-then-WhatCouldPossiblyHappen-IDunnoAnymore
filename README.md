@@ -322,6 +322,8 @@ i was planning on going to the art museum in nyc tomorrow but i have a cold and 
 
 i should write in my blog a lot this month, i got a lot of traffic today and it reminded me that ppl read it
 
+this github thing is not working and something happened to my bank account so i have to wait for something, im just so frustrated BUT ive decided that no matter what happens, for the next few months, im just reading non-fiction things, writing code, reviewing math, going to pilates, updating my wardrobe for fun. so that's what im doing, no matter what happens. 
+
 ------------------
 # Oct
 ------------------
