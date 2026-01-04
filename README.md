@@ -328,6 +328,8 @@ i have some pictures but later in the day ill upload bc i have to go out and pic
 
 we were going to go out for my bro and my sil's 1 yr anniversary but my parents made food
 
+i was going to do red lipstick today, a new one i got by armani, but its very difficult lol, another time
+
 ------------------
 # Oct
 ------------------
