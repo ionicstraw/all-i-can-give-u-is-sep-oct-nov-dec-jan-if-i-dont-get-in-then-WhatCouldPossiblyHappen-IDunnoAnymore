@@ -330,6 +330,7 @@ we were going to go out for my bro and my sil's 1 yr anniversary but my parents 
 
 i was going to do red lipstick today, a new one i got by armani, but its very difficult lol, another time
 
+i got my hair done at a salon yesterday morning and lol this morning, all of the curls were gone, even tho she put in a lot of hairspray oh well haha, it took her 45 mins to do it
 ------------------
 # Oct
 ------------------
