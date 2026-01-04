@@ -331,6 +331,9 @@ we were going to go out for my bro and my sil's 1 yr anniversary but my parents 
 i was going to do red lipstick today, a new one i got by armani, but its very difficult lol, another time
 
 i got my hair done at a salon yesterday morning and lol this morning, all of the curls were gone, even tho she put in a lot of hairspray oh well haha, it took her 45 mins to do it
+
+i have some pictures but im a little busy now. actually, i was digging around looking for clues and i have something that will make u laugh lol but later in the day, we're going to unravel a mystery i discovered from the penn idiotfactory side about summer 2017. im a little busy now
+
 ------------------
 # Oct
 ------------------
