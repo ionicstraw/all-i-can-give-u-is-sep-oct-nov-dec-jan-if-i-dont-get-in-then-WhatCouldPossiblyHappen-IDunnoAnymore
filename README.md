@@ -334,6 +334,8 @@ i got my hair done at a salon yesterday morning and lol this morning, all of the
 
 i have some pictures but im a little busy now. actually, i was digging around looking for clues and i have something that will make u laugh lol but later in the day, we're going to unravel a mystery i discovered from the penn idiotfactory side about summer 2017. im a little busy now. i wish i could zoom call u and share my screen rotfl and laugh out loud
 
+hang on gimmie like 30 mins and ill upload things, i was out with my parents and we stopped at a pakistani bakery and we got some stuff, but they ran out of kashmiri chai ughh
+
 ------------------
 # Oct
 ------------------
