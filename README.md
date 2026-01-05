@@ -332,7 +332,7 @@ i was going to do red lipstick today, a new one i got by armani, but its very di
 
 i got my hair done at a salon yesterday morning and lol this morning, all of the curls were gone, even tho she put in a lot of hairspray oh well haha, it took her 45 mins to do it
 
-i have some pictures but im a little busy now. actually, i was digging around looking for clues and i have something that will make u laugh lol but later in the day, we're going to unravel a mystery i discovered from the penn idiotfactory side about summer 2017. im a little busy now. i wish i could zoom call u and share my screen rotfl and laugh out loud
+i have some pictures but im a little busy now. actually, i was digging around looking for clues and i have something that will make u laugh lol but later in the day, we're going to unravel a mystery i discovered from the penn idiotfactory side about summer 2017. im a little busy now. i wish i could zoom call u and share my screen rotfl and laugh out loud -- ill tell u tomorrow or later this week, im putting my calendar together for the week bc i have things to read/gym/pilates, and i want to sleep by midnight :) another time!!
 
 hang on gimmie like 30 mins and ill upload things, i was out with my parents and we stopped at a pakistani bakery and we got some stuff, but they ran out of kashmiri chai ughh
 
