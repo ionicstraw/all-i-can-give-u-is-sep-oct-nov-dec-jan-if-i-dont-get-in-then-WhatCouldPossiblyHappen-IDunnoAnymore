@@ -336,6 +336,8 @@ i have some pictures but im a little busy now. actually, i was digging around lo
 
 hang on gimmie like 30 mins and ill upload things, i was out with my parents and we stopped at a pakistani bakery and we got some stuff, but they ran out of kashmiri chai ughh
 
+i was a little busy today
+
 ------------------
 # Oct
 ------------------
