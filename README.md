@@ -4,6 +4,7 @@
 * studying for interviews
 * working on my tech blog
 * kind of really busy
+* im going to record a presentation as a walkthrough of that pangenome paper, in a couple of weeks?? for like an hr prolly, bc i want to understand it inside and out and then explain it and upload it to my tech blog -- so it wont be in the style of an official journal club presentation, more like a "heres from zero to somewhat "ok i get it" explaination of this paper" & im going to choose a paper every month (e.g. an AI paper next month) and do that and upload my presentation to my tech blog. im not sad or something, im not a weak person, i just dont want to be distracted by anyone. i get whats going on but for myself, i dont want to repeat 2025 ever again.
 
 ![img](every-day-in-2026.png)
 ![img](framed-tweet-updated.png)
